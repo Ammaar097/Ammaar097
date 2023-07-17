@@ -4,7 +4,8 @@ Hi 👋 My name is Padetsuek Jangburee
 Entry Programmer & Developer
 ----------------------------
 
-Now I'm Just Study a Tool and Programming Languages I'm Just entry Level but I'm gonna Pro
+Now I'm Studying a Tool and Programming Languages.
+Now I'm Just entry Level but I'm gonna Pro as i can
 
 * 🌍  I'm based in AYUTTHAYA
 * ✉️  You can contact me at [padetsuek.2543@gmail.com](mailto:padetsuek.2543@gmail.com)
